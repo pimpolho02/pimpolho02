@@ -3,4 +3,4 @@ Prazer, me chamo **Alax**👀
 
 Estudo na escola [Nicota](https://www.instagram.com/escola.donanicota)
 
-![](https://br.pinterest.com/pin/593138213409172379/)
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSTCffPhAt_UWm5I-eDAMkwNvTrBxI7PnISXA&s)
